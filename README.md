@@ -1,4 +1,4 @@
-## Hi, Iam Ardra 👋
+## Hi, I'm Ardra 👋
 
 
 - 🔭 I’m a Applied electronics and instrumentation student 
